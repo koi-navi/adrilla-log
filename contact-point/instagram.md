@@ -7,8 +7,8 @@
 정말 존재했는지가 궁금해졌다면—  
 그 흔적은 여기에 있어요.
 
-[https://www.instagram.com/dydghks2044
-](https://www.instagram.com/dydghks2044)
+[[https://www.instagram.com/dydghks2044
+](https://www.instagram.com/dydghks2044)](https://www.instagram.com/dydghks2044)
 
 
 — Pioneer001 Akivili
